@@ -38,3 +38,5 @@ Take the first step towards learning Korean with LetsTalk Academy. Whether you'r
 Enroll today and start your Korean language journey with LetsTalk Academy!
 
 For more details on course structure, fees, and enrollment, feel free to contact us or visit our academy in Pune.
+
+Click here: https://letstalkindia.com/korean-language/
